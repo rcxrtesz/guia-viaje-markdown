@@ -1,7 +1,7 @@
 # Bélgica
 ## Introducción
   
-Bélgica es un país pequeño, pero lleno de rincones preciosos. Estuve un mes en Hasselt haciendo las prácticas del *FP de Grado Medio de Informática* y aproveché para visitar varias ciudades que comentaré más adelante. 
+Bélgica es un país pequeño, pero lleno de rincones preciosos. Estuve un mes en **Hasselt** haciendo las prácticas del *FP de Grado Medio de Informática* y aproveché para visitar varias ciudades que comentaré más adelante. 
 
 Al principio me surgieron bastantes dudas sobre si hacer el viaje o no; tenía algo de miedo porque era la primera vez que viajaba sola durante tanto tiempo, sin conocer el idioma ni las costumbres. Además, iba a trabajar y no de vacaciones, así que os podéis imaginar mi incertidumbre. Sin embargo, a día de hoy no me arrepiento en absoluto de haber tomado ese vuelo; de hecho, me habría quedado allí mucho más tiempo.
   
@@ -52,11 +52,11 @@ Adjunto algunas fotos de dichos sitios, porque vale la pena las excursiones y vi
 
   
 ## ESTILO DE VIDA
-Creo que esto es muy importante tenerlo en cuenta si te estás planteando viajar o mudarte una temporada a Bélgica, ya que funcionan de forma bastante diferente a como lo hacemos en España.
+Creo que esto es muy importante tenerlo en cuenta si te estás planteando viajar o mudarte una temporada a Bélgica, ya que **funcionan de forma bastante diferente a como lo hacemos en España**.
   
-En Hasselt, la mayoría de las tiendas cierran a las 18:00 h, y hacia las 20:00 h ya no queda casi nada abierto ni se ve a casi nadie por la calle, más allá de algún bar. La vida allí es muy tranquila: la gente come entre las 11:00 y las 12:00 del mediodía y cena sobre las 18:00-19:00 h. Además, los círculos sociales son bastante cerrados y las fiestas suelen desarrollarse más en entornos privados.
+En Hasselt, la mayoría de las tiendas cierran a las *18:00 h*, y hacia las 20:00 h ya no queda casi nada abierto ni se ve a casi nadie por la calle, más allá de algún bar. La vida allí es muy tranquila: la gente come entre las 11:00 y las 12:00 del mediodía y cena sobre las 18:00-19:00 h. Además, los círculos sociales son bastante cerrados y las fiestas suelen desarrollarse más en entornos privados.
   
-Algo que no me hizo mucha gracia fue que en una de las discotecas locales de Hasselt permitían la entrada gratis a las mujeres. En una de las discotecas más conocidas de Bélgica pasaba lo mismo y, además, si eras hombre y no ibas acompañado de una mujer, no te dejaban pasar (a menos que fueras residente). Yo no salgo de fiesta, y menos sola, pero si lo que queréis es vivir la vida loca y salir por la noche, conviene tener en cuenta estas cosas.
+Algo que no me hizo mucha gracia fue que en una de las discotecas locales de Hasselt permitían la *entrada gratis a las mujeres*. En una de las discotecas más conocidas de Bélgica pasaba lo mismo y, además, *si eras hombre y no ibas acompañado de una mujer, no te dejaban pasar (a menos que fueras residente)*. Yo no salgo de fiesta, y menos sola, pero si lo que queréis es vivir la vida loca y salir por la noche, conviene tener en cuenta estas cosas.
   
 ## RECOMENDACIONES SI VAS A VIAJAR A BÉLGICA
 Hay imprescindibles que recomendaría llevar principalmente, para no morir de frío:
@@ -67,7 +67,7 @@ Hay imprescindibles que recomendaría llevar principalmente, para no morir de fr
   6. Bufanda
   7. Chubasquero
   
-Tuve la suerte de ir en una época en la que no hacía un frío extremo, pero aun así tuve que comprarme ropa térmica. Tampoco me llovió demasiado, aunque en Bélgica el clima frío y la lluvia son lo habitual. Además, tuve la gran oportunidad de ver nevar (¡no veía la nieve desde que tenía 5 años!). :)
+Tuve la suerte de ir en una época en la que no hacía un frío extremo, pero aún así tuve que comprarme ropa térmica. Tampoco llovió demasiado, aunque en Bélgica el clima frío y la lluvia son lo habitual. Además, tuve la gran oportunidad de ver **nevar** (¡no veía la nieve desde que tenía 5 años!). :)
   
 ---
 *Miniguía de viaje - R.C*
